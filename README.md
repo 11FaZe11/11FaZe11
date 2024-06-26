@@ -4,7 +4,7 @@ I'm a developer working on various exciting projects.
 
 ## 🌱 I’m currently learning python and backend programming languages
 
-## 💬 Ask me about ...
+## 💬 Ask me about anything u would like im open to talk!
 
 ## 📫 How to reach me: insta = faze._11 
 
